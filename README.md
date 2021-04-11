@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @kashaf-ahmed-drishyaai
+- 👀 I’m interested in everything related to "CODE"
+- 🌱 I’m currently learning how to live a life.
+- 📫 How to reach me, drop a mail at kashafaahmed@gmail.com
